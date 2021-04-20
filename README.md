@@ -1,1 +1,1 @@
-# rsschool-cv
+https://dobryvk.github.io/rsschool-cv/cv
